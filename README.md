@@ -2,4 +2,4 @@
 
 | Day | Date | Activity |
 | --- | ---- | -------- |
-| 1 | May 31, 2024 | <ul><li><b>Podcast:</b> [Speak Easy #01 – [y] and [w] insertion](https://esl.culips.com/2018/01/speak-easy-01-y-and-w-insertion/)</li></ul>|
+| 1 | May 31, 2024 | <ul><li><b>Podcast:</b> [Speak Easy #01 – [y] and [w] insertion](https://esl.culips.com/2018/01/speak-easy-01-y-and-w-insertion/)</li><li><b>Vocabulary:</b> [Time Vocabulary](https://www.englishclub.com/vocabulary/time.php)</li></ul>|
